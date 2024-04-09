@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nparrent
+- 👋 Hi, I’m Natalie
   
 - 👀 I’m interested in changing the fashion industry by helping to evolve standardized sizing to better fit real body types.
       I aim to develop outdoor gear tailored for larger individuals to improve accessibility to the outdoors for this underserved demographic.
